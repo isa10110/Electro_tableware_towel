@@ -20,6 +20,8 @@ I  used the Husquana Viking Disigner Topaz30 for this project.  Its at the Attra
 
 # Results: 
 
+![a viewoffew](Starshot.avif)
+
 *Egotronic* 
 
 *Das Flug* 
